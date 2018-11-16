@@ -5,14 +5,6 @@
 ![original pic](Screenshot_20160902-195533.png)
 
 
--- 
-
-![filled pic](Screenshot_20160902-195549.png)
-
-
--- 
-
-![filled pic Version 2 ](Screenshot_20160902-195602.png)
 
 -- 
 
